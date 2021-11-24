@@ -8,3 +8,5 @@ https://www.youtube.com/watch?v=VY3ZpH3aYxY
 https://www.youtube.com/watch?v=_rfqURrpg9o
 
 https://www.youtube.com/watch?v=eJC3Ql2e3CU
+
+https://www.ai-blog.co.il/2019/04/04/%d7%9c%d7%9e%d7%99%d7%93%d7%94-%d7%a2%d7%9e%d7%95%d7%a7%d7%94-%d7%a2%d7%9c-%d7%92%d7%a8%d7%a4%d7%99%d7%9d/
